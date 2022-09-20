@@ -1,4 +1,4 @@
-Remember when you were young, you shone like the sun.
+Remember when you were TEXTE DIFFERENT, you shone like the sun.
 Shine on you crazy diamond.
 Now there's a look in your eyes, like black holes in the sky.
 Shine on you crazy diamond.
